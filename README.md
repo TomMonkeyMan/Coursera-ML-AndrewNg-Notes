@@ -356,7 +356,3 @@ https://mooc.guokr.com/note/12/ [小小人_V](https://mooc.guokr.com/user/213348
 
 ------
 
-
-
-**机器学习爱好者qq群：554839127（我们有6个群，加过一个就不需要加了）** 
-
